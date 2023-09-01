@@ -1,5 +1,4 @@
-Software Engineering Student 
+Irish Software Engineering Graduate 
 
-Will probably start posting more Projects here
 
 
